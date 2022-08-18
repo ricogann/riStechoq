@@ -1,1 +1,0 @@
-# ricogann.github.io
